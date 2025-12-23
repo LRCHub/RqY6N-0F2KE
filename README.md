@@ -1,0 +1,103 @@
+# Tori Kelly – 25th
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+Don't you know that Christmas
+would be incomplete
+If you're not here with me
+Sugar plums ain't half
+as sweet as you
+Someone go tell Santa
+I don't need no gifts
+Got nothing on my list
+Don't you know
+my only wish is
+to hold you on the 25th?
+Season's here, lights appear
+Spread the cheer everywhere,
+what a year it has been
+Got me dreamin'
+Oh, the place where we're safe
+From the cold, your embrace
+Oh, I just can't wait
+To be home again
+Catch the midnight flight
+No more silent nights
+I'll be by your side
+Oh
+Don't you know that Christmas
+would be incomplеte
+If you're not herе with me
+Sugar plums ain't half
+as sweet as you
+Someone go tell Santa
+I don't need no gifts
+Got nothing on my list
+Don't you know my only wish
+is to hold you on the 25th?
+Fa-la-la-la-la
+Oh
+Fa-la-la-la-la
+Yeah, yeah
+Hold you on the 25th
+Fancy bags, Cadillacs
+None of that, keep the tags
+I can do without
+I just want one thing
+Fireside burnin' bright
+Mistletoe hangin' high,
+my only desire
+If you're listening
+Catch the midnight flight
+No more silent nights
+It's been the longest time
+Oh, yeah
+Don't you know that Christmas
+would be incomplete
+If you're not here with me
+Sugar plums ain't half
+as sweet as you
+Someone go tell Santa
+I don't need no gifts
+Got nothing on my list
+Don't you know my only wish
+is to hold you on the 25th?
+Fa-la-la-la-la
+Oh
+Fa-la-la-la-la
+No, no, no
+I just want to hold you
+on the 25th
+So catch the midnight flight
+No more silent nights
+I'll be by your side
+Don't you know that Christmas
+would be incomplete
+That Christmas, oh, yeah
+If you're not here with me
+If you're not here with me,
+baby
+Sugar plums ain't half
+as sweet as you
+You
+Someone go tell Santa
+I don't need no gifts
+Tell him I don't need no gifts
+Got nothing on my list
+Oh
+Don't you know my only wish
+My only wish
+Is to hold you on the 25th?
+I just wanna hold you, baby
+Fa-la-la-la-la
+Oh
+Fa-la-la-la-la
+I just wanna hold you, baby
+Ha
+Hold you on the 25th
+Doo-doo-doo-doo-doo-doo-doo
+Fa-la-la-la-la
+So get over here, babe
+Oh, yeah
+```
